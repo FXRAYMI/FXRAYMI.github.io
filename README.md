@@ -1,2 +1,0 @@
-# FXRAYMI.github.io
-portafolio
